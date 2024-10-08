@@ -1,1 +1,2 @@
 Michael Bermejo
+bermejom@oregonstate.edu
